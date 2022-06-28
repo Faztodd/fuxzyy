@@ -1,1 +1,2 @@
 # fuxzyy
+# insyaallah aman 
